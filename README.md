@@ -1,1 +1,1 @@
-Invite to the bar cody
+Colorized Barcode technology
