@@ -1,1 +1,1 @@
-Colorized Barcode technology
+Colorized Barcode Technology
